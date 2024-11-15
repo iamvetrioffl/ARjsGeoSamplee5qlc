@@ -1,1 +1,0 @@
-# ARjsGeoSamplee5qlc
